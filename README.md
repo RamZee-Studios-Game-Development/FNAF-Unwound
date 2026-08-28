@@ -3,4 +3,4 @@ Set in mid 2010's, You work as a security guard at the new Jungle pizzeria that 
 
 <img src="Cover Art.png" alt="Dashboard Screenshot" width="500">
 
-Disclaimer: This is an unofficial fan game. We are not associated with, endorsed by, or affiliated with Scott Cawthon, Steel Wool Studios, or the Five Nights at Freddy's franchise. All rights belong to their respective owners.
+*Disclaimer: This is an unofficial fan game. We are not associated with, endorsed by, or affiliated with Scott Cawthon, Steel Wool Studios, or the Five Nights at Freddy's franchise. All rights belong to their respective owners.*
