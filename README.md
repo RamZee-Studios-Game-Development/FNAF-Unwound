@@ -1,5 +1,5 @@
 # Five Nights at Freddy's: U N W O U N D
-Set in mid 2010's, You work as a security guard at the new Jungle pizzeria that Fazbear Entertainment™ has just opened a month prior. Surely nothing can go wrong...right?
+Set in mid 2010's, You work as a security guard at the new Jungle pizzeria that Fazbear Entertainment™ has just opened a month prior. Surely nothing can go wrong...right? Ş̸̧̲͎̠̮̪̣̯̙͓͙͚̐͊̈͌̂̆́͗̈́̎͘͝͝ǫ̶̬̬̲̟͚̱̪̲̦̜̝̞́̓̀̍m̸̡̞̫̼̣̬̯̠̙̻̻̬̪̏̀͊̒̆̋͒̓͝ĕ̷͈̈́̌͝͝t̵̜̪̙̝͔̘͍̲̞̹͎̟̘͖͔̓̅ḣ̷̢̡̛̹̯̳̱̥̘̲̹͇̼̀̉̍̃̑̆̀̈́̾ͅî̸͇͇n̵͓͍͉̯̲͎͕̬̘̆͗͒̀͊̽͂̊̽̍͋̈̉͒ģ̷̢̯̰̩̪̯̥̭̿̏̏́̃̀͛͒̾̚͜͝͝͝ ̶̨̱͍̝̝͈̞̤͍̭̘̤̽̄͂̓̑͋̏̓̿͜͝͝i̴̢͙̝̫̫̠̣̝̲̫̙̟͔͔̱͑͗͋͌̿͝͝͝s̴̡̡̺̮̤̈́͆̓̉͒́͆̀̅̈ ̵̡̢̛̝͙̮̮̠̖͕̫̹̓͐̍̒̃͌͌̐̀́͜͠͝ͅw̴̢͇͗͗̋̽̏̾̓͝r̸͈̫͙͕̭͉̰̝͛̒̅́͘͝o̴̧̭͔͎̯͙̺̰͎̰̔͗͗̌̃n̶̤̯̠̓͊̀̈́̔̈̒̉̎̽̆̄̇̅͝ͅg̵̘̠̤͇͍̭̓.̵̧̝̼͎̻̺̗͕̓͛̀͜ ̴̜̙̽̅̒̀͘͝Y̸͇͎̱̩̺͙̟̒̅̉̾͋́̑̂͑̍͝ö̷̞̞̭́̇̆̓̍̑̀͊̊̀̂̇u̵̫̙͔̣̯̺̤̇́̈̃̃̾̕ ̵̣̜̙̼̍̽̓͒͋̀̅̌̏͂̉̀̀͜͝h̵̗̹͚̦̐͗̿̕a̵̢͛̔̉̈́̀̽̿v̷̨̲̬̳̞̯̺̝̘̑̉̓̽̓̂͗͒̓̍͐͠ȅ̶̼̣̤͙̯̯̩̟̮̣͐̒̈́͂́̒̆̓͝͝ ̷̢̡̟̮͖̼̳̣͈̬̰̙̟̱͗̒̋́̀͊́̍̚̕t̵̳̞̙̗̣̍̊̍̈́̍̓͝ŏ̶̥̾͋̌̋̎͗̉̊̃͝ ̴̨̦͎̦͖̗̣̪͉͕͓̏͋̈́̐̾͠ͅͅͅš̷̨̩̳͙͈̜̀͆͒̎̈́̉̊͘̕͝͝ứ̴̭͍͕̥̞̱͚͎̹̼̰͜r̴̨̢̛̭̠͓̤̠̪̱͍͐̄̒͌̾͂̊̐͐̈́̌́͠v̵̲̘̫̖̼̼͎͈͔̱̘̂̀̎̈́͗̈̎i̷̝̜͔̝̗͕̋̈͐v̶̨̧̭̄͐͊͝e̵̲͓̦͖̠̥͇̖̣̜̾̃͜ͅ.̵͕̰̗͔̩̿̾͒͗̐̀͗̎͋͂̔̅̈́̌ ̶̨͇͇̲͉͈͂̂̀͆͜
 
 ---
 ### Characters
