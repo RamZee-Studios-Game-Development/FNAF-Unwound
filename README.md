@@ -3,6 +3,14 @@ Set in mid 2010's, You work as a security guard at the new Jungle pizzeria that 
 
 ### Characters
 ---
+* Arrow the Ape
+* Venom the Viper
+* Shade the Panther
+* Scratches the Centipede
+* Nyx the Wolf
+* Jinx the Jester
+* The Conductor
+---
 
 <img src="images and Models/Cover Art.png" alt="Dashboard Screenshot" width="1000">
 
