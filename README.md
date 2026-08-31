@@ -1,5 +1,5 @@
 # Five Nights at Freddy's: U N W O U N D
-Set right after the unfortunate closure of Freddy Fazbear's Pizza, You work as a security guard at the new Jungle pizzeria that Fazbear Entertainment™ has just opened a month prior. Surely nothing can go wrong...right? 
+Set right after the unfortunate closure of Freddy Fazbear's Pizza, You work as a security guard at the new circus pizzeria that Fazbear Entertainment™ has just opened a month prior. Surely nothing can go wrong...right? 
 
 ---
 ### Characters
